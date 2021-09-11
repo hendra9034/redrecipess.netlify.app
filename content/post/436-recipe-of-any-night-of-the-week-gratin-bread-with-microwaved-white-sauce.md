@@ -1,0 +1,139 @@
+---
+description: "Recipe of Any-night-of-the-week Gratin Bread (with Microwaved White Sauce)"
+title: "Recipe of Any-night-of-the-week Gratin Bread (with Microwaved White Sauce)"
+slug: 436-recipe-of-any-night-of-the-week-gratin-bread-with-microwaved-white-sauce
+date: 2021-05-16T05:14:25.091Z
+image: https://img-global.cpcdn.com/recipes/5254152738308096/680x482cq70/gratin-bread-with-microwaved-white-sauce-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5254152738308096/680x482cq70/gratin-bread-with-microwaved-white-sauce-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5254152738308096/680x482cq70/gratin-bread-with-microwaved-white-sauce-recipe-main-photo.jpg
+author: Mina Wade
+ratingvalue: 4.9
+reviewcount: 2406
+recipeingredient:
+- " Any bread dough is fine"
+- "1 Standard bread dough savory dough made with shortening"
+- "1 Whole wheat flour bread dough"
+- " White Sauce"
+- "20 grams Cake flour"
+- "20 grams Butter"
+- "200 grams Milk"
+- "50 grams Heavy Cream"
+- "1 Bouillon soup stock cube"
+- "1 dash Salt and pepper"
+- " Fillings and Toppings"
+- "1/4 Onion"
+- "1 Potatoes"
+- "1 pack  Bacon"
+- "1 Cheese easy melting type"
+- "1 few Broccoli"
+- "1 dash Beaten egg to varnish"
+recipeinstructions:
+- "Make the bread dough and let it rise once (until it has doubled in size). While it&#39;s rising, make the white sauce."
+- "Put the butter and flour into a heat-resistant container. Microwave uncovered for about 1 1/2 minutes at 500W (until the butter has melted.)"
+- "Remove from the microwave and mix well."
+- "Gradually add in the milk as you continuously stir with a whisk."
+- "Microwave for 2 minutes without covering."
+- "Remove from the microwave and mix well."
+- "Add the salt, pepper, and bouillon and microwave for another 2 minutes (break up the bouillon when you add it)."
+- "Remove from the microwave and mix well. Taste and adjust if needed."
+- "Microwave for 2 minutes."
+- "Remove from the microwave and mix well. Lastly, add the heavy cream and stir (if it&#39;s too loose, microwave for 30 seconds)."
+- "Mince the onion, cut the potatoes into 1 cm cubes, and cut the bacon into 1 cm slices. Cover with plastic wrap and microwave for 3-4 minutes."
+- "Combine the white sauce with the fillings and let cool."
+- "After the dough has finished rising, divide into portions, press out the gas, and form into balls. Let sit for about 15 minutes."
+- "Gently release the gas with your finger and then use a rolling pin to flatten out the dough."
+- "Place the dough into the aluminum cups. Use your fingertip to lightly press the dough in and then use a fork to make some holes in the surface. This prevents the dough from expanding."
+- "Pour the gratin filling ingredients into the dough."
+- "Let it rise a second time for about 30 minutes, until the dough has risen about 1.5 times the original size (use the oven&#39;s bread proofing function at 40℃. In the summer, just leave it at room temperature.)"
+- "Brush the egg mixture over the dough for the glaze. Top with the cheese."
+- "Bake for 13-15 minutes in a preheated 180℃ oven. Top with broccoli, etc."
+- "These are made with seafood gratin (shrimp, onion, potato, carrot, cheese, parsley)."
+- "These are bacon gratin rolls. Bacon, onion, potatoes, carrots, corn, cheese, parsley."
+- "I baked these in a mold."
+- "When you want to reheat them, remove the foil, cover with wrap, and microwave each for 20 seconds."
+categories:
+- Recipe
+tags:
+- gratin
+- bread
+- with
+
+katakunci: gratin bread with 
+nutrition: 222 calories
+recipecuisine: American
+preptime: "PT16M"
+cooktime: "PT53M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![Gratin Bread (with Microwaved White Sauce)](https://img-global.cpcdn.com/recipes/5254152738308096/680x482cq70/gratin-bread-with-microwaved-white-sauce-recipe-main-photo.jpg)
+
+Hey everyone, hope you're having an incredible day today. Today, we're going to prepare a distinctive dish, gratin bread (with microwaved white sauce). It is one of my favorites food recipes. For mine, I am going to make it a bit tasty. This will be really delicious.
+
+Gratin Bread (with Microwaved White Sauce) is one of the most popular of current trending meals in the world. It is enjoyed by millions daily. It is simple, it is quick, it tastes delicious. They are nice and they look wonderful. Gratin Bread (with Microwaved White Sauce) is something that I've loved my entire life.
+
+This is for the parents who tell me their kids love white sauce. It&#39;s not the traditional way it is made, but a shortcut cheat&#39;s version. Great recipe for Basic Bread Dough. This is the bread we make most often at our house The dough has When kneading the dough in the bread machine, if you put in all of the ingredients, including the butter, from Gratin Rolls ・White Sauce Made in the Microwave are made with the savory dough.
+
+
+To begin with this particular recipe, we must prepare a few components. You can cook gratin bread (with microwaved white sauce) using 17 ingredients and 23 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Gratin Bread (with Microwaved White Sauce):
+
+1. Take  Any bread dough is fine
+1. Make ready 1 ・Standard bread dough (savory dough made with shortening)
+1. Get 1 ・Whole wheat flour bread dough
+1. Get  White Sauce:
+1. Get 20 grams Cake flour
+1. Prepare 20 grams Butter
+1. Get 200 grams Milk
+1. Prepare 50 grams Heavy Cream
+1. Get 1 Bouillon soup stock cube
+1. Prepare 1 dash Salt and pepper
+1. Get  [Fillings and Toppings]
+1. Prepare 1/4 Onion
+1. Make ready 1 Potatoes
+1. Make ready 1 pack  Bacon
+1. Make ready 1 Cheese (easy melting type)
+1. Get 1 few Broccoli
+1. Prepare 1 dash Beaten egg to varnish
+
+
+Baking can be done both in the oven and in the multicooker! Essentially microwaves draw all the moisture out of any given food as they cook it. That is why you have to pay attention to cooking directions Bread is mostly starch with a small amount of protein. When bread cooks, the starch absorbs water and turns into gel. 
+
+<!--inarticleads2-->
+
+##### Steps to make Gratin Bread (with Microwaved White Sauce):
+
+1. Make the bread dough and let it rise once (until it has doubled in size). While it&#39;s rising, make the white sauce.
+1. Put the butter and flour into a heat-resistant container. Microwave uncovered for about 1 1/2 minutes at 500W (until the butter has melted.)
+1. Remove from the microwave and mix well.
+1. Gradually add in the milk as you continuously stir with a whisk.
+1. Microwave for 2 minutes without covering.
+1. Remove from the microwave and mix well.
+1. Add the salt, pepper, and bouillon and microwave for another 2 minutes (break up the bouillon when you add it).
+1. Remove from the microwave and mix well. Taste and adjust if needed.
+1. Microwave for 2 minutes.
+1. Remove from the microwave and mix well. Lastly, add the heavy cream and stir (if it&#39;s too loose, microwave for 30 seconds).
+1. Mince the onion, cut the potatoes into 1 cm cubes, and cut the bacon into 1 cm slices. Cover with plastic wrap and microwave for 3-4 minutes.
+1. Combine the white sauce with the fillings and let cool.
+1. After the dough has finished rising, divide into portions, press out the gas, and form into balls. Let sit for about 15 minutes.
+1. Gently release the gas with your finger and then use a rolling pin to flatten out the dough.
+1. Place the dough into the aluminum cups. Use your fingertip to lightly press the dough in and then use a fork to make some holes in the surface. This prevents the dough from expanding.
+1. Pour the gratin filling ingredients into the dough.
+1. Let it rise a second time for about 30 minutes, until the dough has risen about 1.5 times the original size (use the oven&#39;s bread proofing function at 40℃. In the summer, just leave it at room temperature.)
+1. Brush the egg mixture over the dough for the glaze. Top with the cheese.
+1. Bake for 13-15 minutes in a preheated 180℃ oven. Top with broccoli, etc.
+1. These are made with seafood gratin (shrimp, onion, potato, carrot, cheese, parsley).
+1. These are bacon gratin rolls. Bacon, onion, potatoes, carrots, corn, cheese, parsley.
+1. I baked these in a mold.
+1. When you want to reheat them, remove the foil, cover with wrap, and microwave each for 20 seconds.
+
+
+That is why you have to pay attention to cooking directions Bread is mostly starch with a small amount of protein. When bread cooks, the starch absorbs water and turns into gel. As soon as it cools, the starch begins. Making sauces is simple in a microwave oven since you don&#39;t have to worry about scorching, sticking or overcooking. Occasional, rather than constant, stirring prevents lumping. 
+
+So that is going to wrap this up for this exceptional food gratin bread (with microwaved white sauce) recipe. Thanks so much for your time. I'm sure you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
